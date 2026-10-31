@@ -1,2 +1,5 @@
 # Pin-2-Dictionary
-stupid ahh ipad kids pc term dictionary with translations
+
+goofy lil kid named pin 2s pc term translations cuz hes an idiot
+
+DICTIONARY.md
